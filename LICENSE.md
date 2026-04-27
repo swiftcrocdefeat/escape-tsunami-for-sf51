@@ -1,4 +1,4 @@
-
+instant Scripts for bedwars offers the most advanced bedwars Script, with silent aim and esp. Perfect for dominating any match.
 
 
 
